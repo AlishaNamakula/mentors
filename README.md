@@ -8,3 +8,8 @@ to provide motivation to different people who are stressed or tired
 
 ![motivational-quotes-in-english](https://github.com/AlishaNamakula/mentors/assets/145709106/2eec3cd4-9fcc-4e7b-821f-5fca6590baf3)
 
+![images-1](https://github.com/AlishaNamakula/mentors/assets/145709106/c2e6125a-3215-4937-81d1-86c0dec6536d)
+
+![images](https://github.com/AlishaNamakula/mentors/assets/145709106/e6a7b241-178f-46d7-be4b-c94deb2702a6)
+
+![images-1](https://github.com/AlishaNamakula/mentors/assets/145709106/ee5503e6-1e55-43b5-b442-dbe427a26e7b)
